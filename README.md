@@ -1,0 +1,1 @@
+Welcome to Innovation Educational and Charitable Trust, Mission Sankalp India. Our mission is to empower communities through education, with scholarships supporting students in various fields including Engineering, Paramedical, Nursing, and more. This profile details our programs, terms, and conditions.
